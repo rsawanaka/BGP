@@ -1,1 +1,1 @@
-# BPG Pages Product Apps
+# BPG Pages Product Shopify Apps
